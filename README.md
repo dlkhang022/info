@@ -1,2 +1,2 @@
 # info
-Doan Linh Khang, @student @VAA @dlkhang022
+Doan Linh Khang, @student @A @dlkhang022
